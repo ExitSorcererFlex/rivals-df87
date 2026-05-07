@@ -1,4 +1,4 @@
-
+vip Script for rivals is the best rivals Script, featuring instant win and auto-heal. Safe and powerful for all your needs.
 
 
 
